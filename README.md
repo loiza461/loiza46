@@ -9,5 +9,5 @@ VOCÊ PODE ENTRA EM CONTATO COMIGO 📫
 
 ALURASTARTESTUDANTE@00001098081961SPALUNO.EDUCACAO.SP.GOV.BR
 
-![] (![image](https://github.com/user-attachments/assets/0eb842eb-9f14-4ade-bdf7-666d8eb5d474))
+![] (![image](https://toppng.com/uploads/preview/woman-tipping-hand-emoji-11549875694vzmbt0sdsi.png))
 
