@@ -9,5 +9,5 @@ VOCÊ PODE ENTRA EM CONTATO COMIGO 📫
 
 ALURASTARTESTUDANTE@00001098081961SPALUNO.EDUCACAO.SP.GOV.BR
 
-![] (![image](https://github.com/user-attachments/assets/45f3f734-383d-4e2d-9419-085dcf541ef3)
+
 
